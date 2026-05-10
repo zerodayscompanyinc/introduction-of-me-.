@@ -6,6 +6,22 @@
 
 ---
 
+### Free education & selling stuff like public digital /private digital and others, Learn more about:
+- coding languages html, css, javascript, etc more
+- discovered about dark psychology tricks and technique
+- discovered about astrology
+- discovered about course of I.T without certificate Learn now
+- discovered features confession room,lessons of course,etc and more
+- discovered about artificial intelligence chat bot, books verse daily share and update ,etc 
+- discovered about spirituality/ meditation / course lessons 50plus with a simple explain?
+- discovered about games suggestions and zodiac sign with astrology, etc
+- discovered about public education books recommended, allowed to sell your product here on my server and  shared your knowledge about what you already learned, etc
+- discovered about public tools review what common used by the Internet!. on(channel:tutorial of tools)
+then check the thread to view the tools, etc
+- discovered about personality traits about negative and positive  traits ,etc
+
+---
+
 ## 🚨 Getting Started
 
 1. Go to **#🚨2nd-verification**
