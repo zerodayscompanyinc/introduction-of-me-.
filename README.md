@@ -1,10 +1,3 @@
-this Discord server appears to be a community called "Znc Foundation | Zero • Knowledge • Developer • Community • product" — also known as "zerodays night club." Let me gather some context.
-
-Let me compile this into a proper README.md for you based on the server structure you provided.
-
-# README.md — Znc Foundation
-
----
 
 # 🎭 Znc Foundation
 ## Zero • Knowledge • Developer • Community • Product
