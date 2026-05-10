@@ -2,7 +2,7 @@
 # 🎭 Znc Foundation
 ## Zero • Knowledge • Developer • Community • Product
 
-> **Welcome to Zeroday's Night Club** — a knowledge-sharing and community-driven Discord server built for learners, builders, and explorers.
+> **Welcome to Zeroday's Night Club** — a knowledge-sharing and community-driven Discord server built for learners, builders, and explorers and not yet done to fully build & under the process & but if you want to join contact me.
 
 ---
 
